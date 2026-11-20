@@ -29,3 +29,27 @@
 - Storyline: Completing the day's progression with a calming fold to lock in the mobility gains.
 - Video: ep50_seated_forward_fold.mp4
 - Scheduled: 7:00 PM PST
+
+### Episode 51 - Low Lunge Hip Opener (2026-11-20)
+- Caption: Stop forcing it. Open the hips like this.
+- Storyline: Morning session begins after the late-evening form work; Angel sees who returns consistently to open the hips properly without forcing.
+- Video: ep51_low_lunge_hip_opener.mp4
+- Scheduled: 11:00 AM PST
+
+### Episode 52 - Warrior II Alignment (2026-11-20)
+- Caption: Eyes on the form. That’s the point.
+- Storyline: Building from the open hips into a stable standing pose; only the consistent form-checkers remain in the frame as she coaches alignment.
+- Video: ep52_warrior_ii_alignment.mp4
+- Scheduled: 2:00 PM PST
+
+### Episode 53 - Bridge Pose Hold (2026-11-20)
+- Caption: Form check. If you feel this, you’re doing it right.
+- Storyline: Transitioning to posterior chain activation while keeping the hips open; she notes who locks in the full extension and stays.
+- Video: ep53_bridge_pose_hold.mp4
+- Scheduled: 5:00 PM PST
+
+### Episode 54 - Seated Forward Fold (2026-11-20)
+- Caption: Most people quit this stretch. Don’t.
+- Storyline: Closing the day's progression with a calming fold to lock in the mobility gains; the ones who stayed through the form checks finish with her.
+- Video: ep54_seated_forward_fold.mp4
+- Scheduled: 8:00 PM PST
